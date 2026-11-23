@@ -1,7 +1,7 @@
 # Team JJ
 
 ## About Us
-We are Jaiden and Jillian we are JJ
+We are Jaiden and Jillian we are JJ!
 
 ## Team Members
 
